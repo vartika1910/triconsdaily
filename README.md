@@ -1,1 +1,1 @@
-#Tricon Daily
+#Tricon's Daily
